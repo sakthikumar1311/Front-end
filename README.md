@@ -38,3 +38,10 @@ jsjssmd
 jsnsns
 sjsnsm
 msmssmm
+bbanmsns
+ansnmddn
+snsndnd
+snsndmdm
+ndmdmd
+ndndmdm
+smdmdm
