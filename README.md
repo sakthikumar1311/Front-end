@@ -65,3 +65,17 @@ sndndn
 msndmd
 skdmdi
 sndmd
+snsnwnneen
+sndnndnd
+endndn
+dndme
+dndnnd
+dmdmd
+dnsd
+jsndm
+sjjs
+snsjsj
+jjsns
+sjsjsms
+jsjeje
+jkskems
