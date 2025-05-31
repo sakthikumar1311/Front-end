@@ -94,3 +94,12 @@ fnfnf
 jfkfk
 fnfngm
 fmmff
+nendmff
+dnnddofl
+dndlff
+smmdmfg
+dmfmmfg
+mdmfmf
+dkfkfkfl
+dkfkkfg
+dkkffl
